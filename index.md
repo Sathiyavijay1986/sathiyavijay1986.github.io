@@ -25,6 +25,6 @@ Email: **sajay75@gmail.com**
 ---
 
 ## 🌐 Website  
-https://sathiya-adv.github.io/
+https://sathiyavijay1986.github.io/
 
 ---
